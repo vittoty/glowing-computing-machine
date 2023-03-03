@@ -1,0 +1,1 @@
+Condico degero spargo arbitro vita inventore strenuus amet.
